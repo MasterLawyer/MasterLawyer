@@ -12,8 +12,8 @@ Aspiring Defence Man, but currently a Lawyer, Trying to be too cool nd for a fac
 ---
 
 ### Connect with me:
-- LinkedIn: [solver9063](https://www.linkedin.com/in/harshsingh05/)  
-- GitHub: [kmv9063](https://github.com/MasterLawyer)
+- LinkedIn: [MasterLawyer](https://www.linkedin.com/in/harshsingh05/)  
+- GitHub: [MasterLawyer](https://github.com/MasterLawyer)
 
 ---
 
